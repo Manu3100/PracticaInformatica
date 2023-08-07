@@ -1,1 +1,3 @@
-# PracticaInformatica
+Preparado 🎫
+Modificado 🎟️
+Confirmado 🎈
